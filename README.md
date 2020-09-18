@@ -1,2 +1,6 @@
 # hello-world
-Something have been looking forward to know 
+Hi everyone, 
+I am called meek guy so I named myself helpmetobemeek.
+I love computers and am looking forward to have one.
+I also really want to know about what it's made of .
+So am looking forward to knowing more.
